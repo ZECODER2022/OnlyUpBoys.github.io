@@ -1,3 +1,3 @@
 # https://zecoder2022.github.io/OnlyUpBoys.github.io/
 
-Made by Zegamer, if you have any questions on this project fell free to contact me on discord. discord ID: Zegamer4542
+Made by ZeCoder2022, Please do not Steal my code, you may copy and edit it for your own website but please don't take it and just copy the whole website. If you have any questions please fell free to contacted me on discord my username is Zegamer4542.
